@@ -1,4 +1,4 @@
-[TOC]
+{:toc}
 
 #### Day With A Pornstar Vol. 10
 [adultempire](https://www.adultempire.com/3756767/day-with-a-pornstar-vol-10-porn-movies.html)  
