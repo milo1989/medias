@@ -1,4 +1,4 @@
-{:toc}
+{% include toc.html html=content %}
 
 #### Day With A Pornstar Vol. 7 - ignore
 
