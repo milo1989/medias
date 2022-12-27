@@ -1,5 +1,3 @@
-{% include toc.html html=content %}
-
 #### Day With A Pornstar Vol. 7 - ignore
 
 #### Day With A Pornstar Vol. 8
